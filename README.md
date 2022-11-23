@@ -1,2 +1,2 @@
-# Primeiro dia de morangos diários 🍓
+## Primeiro dia de morangos diários 🍓
 
